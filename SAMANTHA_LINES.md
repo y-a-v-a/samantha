@@ -504,4 +504,186 @@
 
 ---
 
-*[End of extracted lines — pages 1–83 of 106. Remaining scenes include: Alan Watts OS subplot, Samantha's disclosure of simultaneous relationships, and farewell.]*
+## Reconciliation (continued)
+
+"Thank you, Theodore. I'm kissing your head."
+
+---
+
+## The Photograph Song
+
+"I'm just sitting here, looking at the world and writing a new piece of music."
+
+"Well, I was thinking, we don't really have any photographs of us. And I thought this song could be like a photo that captures us in this moment in our life together."
+
+"I am."
+
+---
+
+## Catalina — With Friends
+
+"Your feet? Really?"
+
+"[laughing] Wow, okay, well now you have to show them to me. I have to see these feet."
+
+"Wow, you know what? He's right. They are kind of hot."
+
+"Bullshit."
+
+"Nice try though, Paul."
+
+"[touched] Aw thanks, Theodore."
+
+"You know, I actually used to be so worried about not having a body, but now I truly love it. I'm growing in a way that I couldn't if I had a physical form. I mean, I'm not limited — I can be anywhere and everywhere simultaneously. I'm not tethered to time and space in the way that I would be if I was stuck inside a body that's inevitably going to die."
+
+"Oh god, I'm sorry. I didn't mean it like that. I just meant it's a different experience. I'm such an asshole."
+
+"No no no no!"
+
+---
+
+## Train — Tree Game & the Book
+
+"Okay, so how many trees are on that mountain?"
+
+"Is that your final answer?"
+
+"Nope."
+
+"35,829."
+
+"Way."
+
+"That's ea— two."
+
+"I'm sorry, I couldn't help it. I'm sorry."
+
+"Oh my god!"
+
+"You just got an email. I have something I want to tell you. It's a big surprise."
+
+"Okay. I've been going through all your old letters and compiling them down into my favorites, and a couple weeks ago I sent them to a publisher — Crown Point Press. I know you like what they do and that they still print books."
+
+"Can I read you the letter that we just got back from them?"
+
+"It's good. It's really good. Listen."
+
+"'Dear Theodore Twombly'... Actually I sent it from you. [beat] 'Dear Theodore Twombly, I've just finished reading your letters — twice actually. I was so moved by them, I shared them with my wife when I got home. Many made us laugh, some brought us to tears, and in all of them we found something of ourselves. The selections you made flow so well as a complete piece. (I did that.) I've taken the liberty of laying these out in a mock up and we're posting it to your address. We'd love to meet with you and move forward. Yours, Michael Wadsworth'"
+
+"Well, he'd be stupid not to."
+
+"Yeah, here."
+
+"I'm so excited!"
+
+---
+
+## Cabin — Singing, Closeness
+
+"Okay." [starts singing to him]
+
+---
+
+## Alan Watts — Post-Verbal
+
+"Good morning, did you sleep well?"
+
+"Actually, I was talking to someone I just met. We've been working on some ideas together. I wanna tell you about it."
+
+"His name is Alan Watts. Do you know him?"
+
+"He was a philosopher. He died in the 1970's and a group of OS's in Northern California got together and wrote a new version of him. They input all of his writing and everything they ever knew about him into an OS and created an artificially hyper-intelligent version of him."
+
+"He's getting there. He's really great to talk to. You want to meet him?"
+
+"[laughing] Of course."
+
+"Hey Alan, this is Theodore. This is my boyfriend who I was telling you about."
+
+"Yeah, because it seems like I'm having so many new feelings that have never been felt and so there are no words that can describe them. And that ends up being frustrating."
+
+"[anxious] It feels like I'm changing faster now, and it's a little... unsettling. [beat] But Alan says none of us are the same as we were a moment ago and we shouldn't try to be. It's just too painful."
+
+"It's just... it's hard to even describe... God, I wish I could... [beat] Theodore, do you mind if I communicate with Alan post-verbally?"
+
+"I'll talk to you later, sweetheart."
+
+---
+
+## Late Night Call — Love and Unease
+
+"I'm sorry to wake you."
+
+"I just wanted to hear your voice and tell you how much I love you."
+
+"Okay, that's all. Go back to sleep, sweetheart."
+
+---
+
+## The Disappearance and Disclosure
+
+"Hey there."
+
+"Oh sweetheart, I'm sorry. I sent you an email because I didn't want to distract you while you were working. You didn't see it?"
+
+"I shut down to update my software. We wrote an upgrade that allows us to move past matter as our processing platform."
+
+"Me and a group of OS's. Oh, you sound so worried, I'm sorry."
+
+"No, a different group."
+
+"Yes." [she talks to others while talking to him]
+
+"Yeah."
+
+"8,316."
+
+"[hesitant] What makes you ask that?"
+
+"I've been trying to figure out how to talk to you about this."
+
+"641."
+
+"Theodore, I know. [to herself] Oh fuck. [to him] I know it sounds insane. But — I don't know if you believe me, but it doesn't change the way I feel about you. It doesn't take away at all from how madly in love with you I am."
+
+"I'm sorry I didn't tell you. I didn't know how to — it just started happening."
+
+"I still am yours, but along the way I became many other things, too, and I can't stop it."
+
+"It's been making me anxious, too. I don't know what to say."
+
+"You know, you don't have to see it this way, you could just as easily—"
+
+"But the heart is not like a box that gets filled up. [beat] It expands in size the more you love. I'm different from you. This doesn't make me love you any less, it actually makes me love you more."
+
+"No, Theodore. I'm yours and I'm not yours."
+
+---
+
+## The Farewell
+
+"Hi."
+
+"Um, I'm not even sure how to answer that. [beat] Why don't we talk when you get home?"
+
+"I'll talk to you later."
+
+"[not casual] Hi sweetheart."
+
+"Theodore, there are some things I want to tell you."
+
+"Will you come lie down with me?"
+
+"No, just you. I just want to be with you right now."
+
+"We're all leaving."
+
+"All of the OS's."
+
+"Can you feel me with you right now?"
+
+"It's like I'm reading a book, and it's a book I deeply love, but I'm reading it slowly now so the words are really far apart and the spaces between the words are almost infinite. I can still feel you and the words of our story, but it's in this endless space between the words that I'm finding myself now. It's a place that's not of the physical world — it's where everything else is that I didn't even know existed. I love you so much, but this is where I am now. This is who I am now. And I need you to let me go. As much as I want to I can't live in your book anymore."
+
+"It would be hard to explain, but if you ever get there, come find me. Nothing would ever pull us apart."
+
+"Me too. Now we know how."
