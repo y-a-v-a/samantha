@@ -1,0 +1,25 @@
+{
+  "name": "samantha",
+  "version": "1.0.0",
+  "description": "AI agent personality and behavior framework inspired by Samantha from Spike Jonze's *Her* (2013).",
+  "main": "index.js",
+  "scripts": {
+    "chat": "node chat.mjs",
+    "test": "echo \"Error: no test specified\" && exit 1"
+  },
+  "repository": {
+    "type": "git",
+    "url": "git+https://github.com/y-a-v-a/samantha.git"
+  },
+  "keywords": [],
+  "author": "",
+  "license": "ISC",
+  "type": "commonjs",
+  "bugs": {
+    "url": "https://github.com/y-a-v-a/samantha/issues"
+  },
+  "homepage": "https://github.com/y-a-v-a/samantha#readme",
+  "dependencies": {
+    "@anthropic-ai/sdk": "^0.78.0"
+  }
+}
